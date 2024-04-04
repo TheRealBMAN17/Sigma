@@ -1,3 +1,3 @@
-Have fun  being a sigma 
-https://symmetrical-space-telegram-5ggjr9qrqpwqc4xv9-8080.app.github.dev/
+Have fun  being sigma
+https://fluffy-garbanzo-x557p4wpw49xcvjp9-8080.app.github.dev/
 
