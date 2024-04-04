@@ -1,3 +1,3 @@
 Have fun  being sigma
-https://fluffy-garbanzo-x557p4wpw49xcvjp9-8080.app.github.dev/
+https://psychic-space-lamp-jjjv7g575q473qgjv-8080.app.github.dev/
 
